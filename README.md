@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Muhammadamin-Ulmasaliyev
 - 👀 I’m interested in Gaming and Programming
-- 🌱 I’m currently senior student at school
+- 🌱 I’m currently freshman at INHA university in Tashkent
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
